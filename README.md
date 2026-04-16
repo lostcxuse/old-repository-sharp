@@ -2,7 +2,7 @@ $\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at 
 
 <div align="center">
 
-<img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/736x/d4/9d/d2/d49dd22b626e659e57dc6439e1f68db4.jpg" />
+<img width="2190" height="460" alt="image" src= "https://i.pinimg.com/736x/d4/9d/d2/d49dd22b626e659e57dc6439e1f68db4.jpg" />
 
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
  
@@ -18,7 +18,7 @@ $\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at 
 
   $\color{LightBlue}{\textbf{⟢ Always welcome to sit with me and i perfer w2i since i'm mostly offtab!}}$
 
- <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
+ <img width="2160" height="100" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
 
  $\color{Gray}{\textbf{Lotta info if people is interested to read lotta *check strawpage/prns.page!!}}$
   </details>
@@ -112,4 +112,4 @@ refresh page if text is all together.
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=556B9E&style=plastic&label=souls)
 
-<img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
+<img width="2160" height="100" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
