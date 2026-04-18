@@ -4,7 +4,7 @@ $\color{Gray}{\textbf{if the photo glitch, that not me doing that. blame that on
 
 <div align="center">
 
-<img width="2190" height="460" alt="image" src= "https://i.pinimg.com/736x/d4/9d/d2/d49dd22b626e659e57dc6439e1f68db4.jpg" />
+<img width="2190" height="1060" alt="image" src= "https://i.pinimg.com/736x/d4/9d/d2/d49dd22b626e659e57dc6439e1f68db4.jpg" />
 
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
  
