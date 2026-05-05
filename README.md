@@ -1,4 +1,3 @@
-$\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at the same time?.. I WILL TAKE THE DAMN BLAME, OK?}}$
 
 $\color{Gray}{\textbf{if the photo glitch, that not me doing that. blame that on github.*}}$
 
